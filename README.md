@@ -1,5 +1,5 @@
 Hello! 
 
-I'm Gavin, I aspire to make things that spread joy. Please check out my stuff! 
+I'm Gavin, I want to be as good as I can at programming.
 
 Thank you!

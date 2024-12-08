@@ -1,5 +1,5 @@
 Hello! 
 
-I'm Gavin, I want to be as good as I can at programming.
+My PFP is me irl. Thank you for your time.
 
-Thank you!
+Have a good day!
